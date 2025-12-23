@@ -4,7 +4,7 @@
 
  ꒱ l̲o̲on / z͟  ,, [kin name/pony cos name is fine!]  ⸝ ⸝    they 𓏵 them   ⋮   agender !
 
-  , ⋆︶        minor    —    artist   ／➶／   sign ata ♪ cud + cover comf ^_^
+  , ⋆︶        minor    —    fictkin   ／➶／   sign ata ♪ cud + cover comf ^_^
 
 
 
@@ -26,10 +26,27 @@ sign tree + ata <3
   @batsu_sebun on X for art.
 </details>
 
-<details>
-  <summary>other info</summary>
-  find my other info on boundaries on my other repository (olddisco) or on my straw. ^_^
-</details>
-</div>
 
+<details>
+  <summary>important</summary>
+  Hey soo before you interact with me, there's a few things you should know!
+
+  Regarding who I am: I am a fourteen year old fictionkin. I am perfectly comfortable with doubles, and I'm not super in-your-face about my kins. However, if you're uncomfy w/ doubles then hide or block me ^^
+  kin list will be on my strawpage for anyone who wants to see it.
+
+  I am not mentally stable. I am not diganosed with anything, and I don't claim to have anything. However, I have had some serious mental issues before and I still do now. Also, I'm a very bad people pleaser, though I'm trying to be better about it, please be aware of that.
+
+  I'm fine with 'mean' jokes, kys/kms jokes, etc. I'm fine with slurs. I do not curse very often. Be careful with sh jokes, especially if I'm not doing well.
+
+  Never idolize mental illness, sh, or suicide around me. Sh topics can be very triggering to be so be very very careful.
+
+  I am overall a shy person. I get nervous or anxious very easily, be patient ok? Because of this i get scared to interact or contact first. Promise i don't hate you ^^
+
+
+  TO MY OOMFS!!
+  hey you guys mean a lot to me even though we don't talk. I enjoy sitting around you guys. If i have any kind of dni in my mind, feel free to sit with me. If i don't have any dni.. still feel free to sit with me. I love looove sitting with people, it makes me very happy. Love you guys ^^
+</details>
+
+
+</div>
 
