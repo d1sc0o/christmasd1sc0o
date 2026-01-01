@@ -34,13 +34,14 @@ sign tree + ata <3
   Regarding who I am: I am a fourteen year old fictionkin. I am perfectly comfortable with doubles, and I'm not super in-your-face about my kins. However, if you're uncomfy w/ doubles then hide or block me ^^
   kin list will be on my strawpage for anyone who wants to see it.
 
-  I am not mentally stable. I am not diganosed with anything, and I don't claim to have anything. However, I have had some serious mental issues before and I still do now. Also, I'm a very bad people pleaser, though I'm trying to be better about it, please be aware of that.
+  I am not mentally stable. I am not diganosed with anything, and I don't claim to have anything. However, I have had some serious (non descript) mental issues before and I still do now. Also, I'm a very bad people pleaser, though I'm trying to be better about it, please be aware of that.
 
   I'm fine with 'mean' jokes, kys/kms jokes, etc. I'm fine with slurs. I do not curse very often. Be careful with sh jokes, especially if I'm not doing well.
 
-  Never idolize mental illness, sh, or suicide around me. Sh topics can be very triggering to be so be very very careful.
+  Never idolize mental illness, sh, or suicide around me. Sh topics can be very triggering to me so be very very careful.
 
   I am overall a shy person. I get nervous or anxious very easily, be patient ok? Because of this i get scared to interact or contact first. Promise i don't hate you ^^
+ That being said, I do get very scared to approach people or talk to people. Especially when I think you're cool, and I think pretty much everyone is cool.
 
 
   TO MY OOMFS!!
